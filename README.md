@@ -2,7 +2,7 @@
 
 Right-zoning
 ------------
-_Amendment_
+_Amendment Tovo #4, from LDC Draft 2_
 To protect renters, right zone city-wide existing missing middle housing, including triplexes and fourplexes.
 
 _Reasons_
